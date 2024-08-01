@@ -1,7 +1,6 @@
 - 👋 Oi, eu sou Levi
 - 👀 Eu sou interessado em Economia 
 - 🌱 Atualmente estou aprendendo ...na escola
-- 💞️ I’m looking to collaborate on ...
 - 📫 Como chegar até mim ...instagram
 
 
